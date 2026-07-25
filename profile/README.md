@@ -151,8 +151,8 @@ Availability may vary depending on your state, banking institution, and eligibil
 </p>
 
 <div style="text-align:center;">
-<a class="button" href="#" target="_blank">
-<img src="https://i.imageupload.app/c248d28f6f41951fc1ae.png" alt="Get Started">
+<a href="https://afflat3c1.com/trk/lnk/87707938-3EFE-47E8-BFC5-CA640523174B/?o=22956&c=918273&a=800921&k=2136C6547597B3DDFB9E964B1AF7F6B5&l=36996" target="_blank" rel="nofollow sponsored">
+    <img class="hero" src="https://i.imageupload.app/c248d28f6f41951fc1ae.png" alt="Brigit Reviews">
 </a>
 </div>
 
